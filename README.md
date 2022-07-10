@@ -4,6 +4,7 @@
 
 How to reach me:
 - 📫 leonardo11vergara11@gmail.com
+- 📫 www.linkedin.com/in/leo11vergara11/
 - 📫 https://twitter.com/leo11vergara11
 
 <!--
